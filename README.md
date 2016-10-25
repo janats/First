@@ -1,1 +1,0 @@
-# Janat-s-repository
